@@ -38,3 +38,6 @@ Back
 All alphabet
 
 Number
+![Screenshot_3-12-2024_111457_](https://github.com/user-attachments/assets/0be8a157-bafd-4748-839b-87e026bc5fff)
+![Screenshot_3-12-2024_111441_](https://github.com/user-attachments/assets/3081ad7b-cf4b-4d94-bd5a-e2c67aeacd83)
+![Screenshot_3-12-2024_111334_](https://github.com/user-attachments/assets/3be645b8-fef2-402c-a67c-113f329e8353)
